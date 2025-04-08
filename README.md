@@ -17,3 +17,15 @@ Una fortaleza que valoro mucho es que, ante una tarea desconocida, suelo mantene
 ### 🛠️ ¿Qué debilidades heredadas siento que debo trabajar para mejorar?
 
 Una debilidad fuerte es que suelo guardarme mis emociones . Hay momentos en los que no muestro cómo me siento realmente, ni siquiera con personas cercanas. Pero cuando alguien de mi familia me pregunta directamente por mi estado emocional, me quiebro emocionalmente . Sé que necesito aprender a expresarme más abiertamente, sin sentir que mostrarme vulnerable es algo malo. Estoy en proceso de trabajar en esto, porque sé que liberar mis emociones me puede ayudar a sanar y conectar mejor con los demás .
+
+## 💬 Parte 2: Análisis de otra persona
+
+
+### 🌟 Fortalezas heredadas
+
+Algo que admiro mucho de mi compañero **Willy Calisaya** es su **resiliencia y perseverancia** . A pesar de los miedos que él mismo menciona, se nota que tiene una gran capacidad para seguir adelante, incluso en medio de la duda o el cansancio emocional. Esa fuerza no aparece de la nada; creo que la ha heredado de su familia, y es lo que lo mantiene firme cuando otros quizás se detendrían. .
+
+### 🧱 Debilidades heredadas
+
+También reconozco que Willy ha heredado algunas dificultades emocionales que está tratando de superar . Cuando se siente abrumado, tiende a procrastinar . Esa forma de enfrentar la ansiedad no viene solo de él, sino que probablemente es algo que ha visto o absorbido en su entorno familiar. 
+
